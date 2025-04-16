@@ -1,13 +1,13 @@
 ---
 layout: post                                      #使用的布局（不需要改）
-title: 《机动战士高达 GQuuuuuuX》观影随笔           #标题
+title: 《BanG Dream! Ave Mujica》观影随笔          #标题
 subtitle:                                         #副标题
-date: 2025-04-13                                  #时间
+date: 2025-04-15                                  #时间
 author: BYQ0002                                   #作者
 header-img: img/64800561_p0.jpg                   #这篇文章标题背景图片
 catalog: true                                     #是否归档
 tags:                                             #标签
-    - 2025年14月
+    - 2025年04月
 ---
 
 ## 各话简单分析
