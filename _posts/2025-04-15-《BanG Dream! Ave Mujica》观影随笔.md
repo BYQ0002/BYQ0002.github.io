@@ -698,3 +698,10 @@ mygo12话live灯的mc，说了一句与艾伦相同的话：“因为我已经�
 
 [url]https://www.bilibili.com/opus/1048131784472002567?spm_id_from=333.1387.0.0[/url]
 [url]https://www.bilibili.com/video/BV1iko7Y4Eyu[/url]
+
+## 碎碎念
+
+### 01
+
+https://img.nga.178.com/attachments/mon_202504/16/axw3Q2v-a1xlZeT3cSsg-g0.jpg  
+原来bangumi头像是这么来的
