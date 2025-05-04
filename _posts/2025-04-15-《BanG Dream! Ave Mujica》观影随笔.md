@@ -829,9 +829,38 @@ https://bbs.nga.cn/read.php?tid=43616880&rand=180
 Mujica 4月情报搬运讨论  
 https://bbs.nga.cn/read.php?tid=43904445&authorid=60992661
 
+武士道是不是把初华小姨这个设定给忘了？
+https://bbs.nga.cn/read.php?tid=43950082
+
+【Mygo】【Mujica】企划相关同人作品综合讨论楼  
+https://bbs.nga.cn/read.php?tid=42765527  
+哦这楼锁了.转念一想防止小圈子共振滑坡也挺好.
+
 ### 05
 
-关于若叶睦
+
+
+### 06
+
+https://bbs.nga.cn/read.php?tid=43940145  
+https://bbs.nga.cn/read.php?tid=43935283  
+https://www.bilibili.com/opus/1060310134154067969?spm_id_from=333.1387.0.0  
+https://www.bilibili.com/opus/1060573690516733958?spm_id_from=333.1387.0.0  
+https://www.bilibili.com/video/BV16WLzzPEXh
+
+哎这场外(特别是紫吧)有那么一点点不忍心看了  
+(额说不定其实也还好)
+
+### 07
+
+Mujica 5-6月情报搬运讨论  
+https://bbs.nga.cn/read.php?tid=43960321
+
+
+## 关于若叶睦
+
+猫睦卡面剧情出来后,感觉围绕睦这个"角色"的话题,可能有很多要聊的地方,所以单开一个条目.  
+(但说真的,从叙事学的角度看,睦真的算"角色"吗?)
 
 柿本有意识寻找角色性格的锚点，但还挖得不够深。比如睦的问题是精神疾病，但想让观众移情，应该进一步挖掘（比如莱纳疯了是因为自己在岛内的经历颠覆了自己以往的认知）。
 
@@ -849,16 +878,5 @@ https://bbs.nga.cn/read.php?tid=43660204
 https://bbs.nga.cn/read.php?tid=43940411
 
 【BanG Dream!日服中字】要乐奈合同live限定卡面剧情《吉他的意义》  
-https://www.bilibili.com/video/BV1zfLdz5EJj
-
-### 06
-
-https://bbs.nga.cn/read.php?tid=43940145  
-https://bbs.nga.cn/read.php?tid=43935283  
-https://www.bilibili.com/opus/1060310134154067969?spm_id_from=333.1387.0.0  
-https://www.bilibili.com/opus/1060573690516733958?spm_id_from=333.1387.0.0  
-https://www.bilibili.com/video/BV16WLzzPEXh
-
-哎这场外(特别是紫吧)有那么一点点不忍心看了
-
-
+https://www.bilibili.com/video/BV1zfLdz5EJj  
+哇,这个视频下面好些顶着睦的id或者头像破防...
