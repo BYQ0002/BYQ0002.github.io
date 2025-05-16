@@ -143,3 +143,8 @@ https://bbs.nga.cn/read.php?tid=44080110&_fp=3
 虽说番茄现在是挺精神小妹的，但这集真是番茄妈的锅吧  
 https://bbs.nga.cn/read.php?tid=44085169  
 某种程度上确实如访谈所说,讲的就是战后日本的中微观生态
+
+​
+夸克斯这集nico好评率怎么还跌了  
+https://bbs.nga.cn/read.php?tid=44107761&rand=896  
+鹤卷你跟锦织坐一桌吧
