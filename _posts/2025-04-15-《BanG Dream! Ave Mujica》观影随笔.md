@@ -786,8 +786,13 @@ https://stage1st.com/2b/forum.php?mod=viewthread&tid=2250986&page=1&authorid=458
 众多场外信息指向本作制作群在混乱中自相践踏，指引故事前进的合力完全消失，代之以在急转向之中分崩离析的“分力”  
 鸡狗作为新邦的起跑线，其根基已经完全背离中村航创建邦宇宙时写在灰暗现实中的热烈王道，不以音乐与舞台元素串联，不花心力刻画始终如一的角色弧光，而是饥不择食地奔向一个个噱头，最终七窍流血以致暴亡。
 
-
 用立意指导写作,用角色生成剧情
+
+哪个知名演员演砸了经典角色，导致事业跌落? - 甄选加浓冰美式的回答 - 知乎  
+https://www.zhihu.com/question/1905786782747985218/answer/1908162634563449361  
+>他们的存在本身就是剧本烂的原因之一吧，比如天盛长歌原著大女主文的，陈坤一番戏份都改成陈坤多了
+
+不知道日本那边的改剧本是个什么情况,跟我们这边是否相似?
 
 ### 04
 
@@ -924,6 +929,10 @@ https://bbs.nga.cn/read.php?tid=44117187&authorid=64445073
 https://bbs.nga.cn/read.php?tid=44138224&_fp=2  
 https://www.bilibili.com/video/BV1XULezrEp1
 
+### 10
+
+https://www.lofter.com/tag/%E9%BB%84%E7%93%9C%E8%8A%B1%E4%B8%8E%E5%BE%AE%E9%A3%8E%E7%9A%84%E7%BB%AE%E6%83%B3%E6%9B%B2  
+https://www.lofter.com/tag/5%E6%9C%8827%E6%97%A5%E5%88%9D%E5%A4%8F%E5%B0%86%E8%87%B3
 
 ## 关于若叶睦
 
