@@ -929,10 +929,36 @@ https://bbs.nga.cn/read.php?tid=44117187&authorid=64445073
 https://bbs.nga.cn/read.php?tid=44138224&_fp=2  
 https://www.bilibili.com/video/BV1XULezrEp1
 
+某位作画爱好者  
+>想要写弥赛亚受难并不是发了疯一样把所有自己能想象到的的苦难都强加到了角色身上，而到最后角色的思维方式却没有任何变化，依然是那一套，那么这些苦难又有什么意义呢？/ 演出能失活到这种程度倒是真没想到，最后甚至亲口道出舞台装置，但完全没有舞台装置的演出意识，真是无聊至极
+
 ### 10
 
 https://www.lofter.com/tag/%E9%BB%84%E7%93%9C%E8%8A%B1%E4%B8%8E%E5%BE%AE%E9%A3%8E%E7%9A%84%E7%BB%AE%E6%83%B3%E6%9B%B2  
 https://www.lofter.com/tag/5%E6%9C%8827%E6%97%A5%E5%88%9D%E5%A4%8F%E5%B0%86%E8%87%B3
+
+### 11
+
+到25年09月为止的一些帖子
+
+https://bbs.nga.cn/read.php?tid=44525303&authorid=66784901&rand=197  
+https://bbs.nga.cn/read.php?tid=44519761&page=6  
+https://bbs.nga.cn/read.php?tid=44530058&page=5&rand=632  
+https://bbs.nga.cn/read.php?tid=44574980  
+https://www.bilibili.com/opus/1041267091005505539?spm_id_from=333.1369.0.0  
+https://stage1st.com/2b/forum.php?mod=viewthread&tid=1727410&extra=&authorid=412160&page=2  
+https://stage1st.com/2b/forum.php?mod=viewthread&tid=2210855&page=198&authorid=412160  
+https://stage1st.com/2b/forum.php?mod=viewthread&tid=2208921&extra=&authorid=412160&page=2  
+https://stage1st.com/2b/forum.php?mod=viewthread&tid=2050404&extra=&authorid=412160&page=7  
+https://stage1st.com/2b/forum.php?mod=viewthread&tid=2236210&page=4&authorid=412160  
+https://bbs.nga.cn/read.php?tid=44388315&rand=288  
+https://bbs.nga.cn/read.php?tid=44466416&pid=835175261&opt=512&page=3&rand=726  
+https://bbs.nga.cn/read.php?tid=44917637&page=3&rand=61
+
+https://bbs.nga.cn/read.php?tid=44725366&authorid=63376818  
+https://bbs.nga.cn/read.php?tid=44192633&rand=132
+
+
 
 ## 关于若叶睦
 
@@ -963,3 +989,4 @@ https://bbs.nga.cn/read.php?tid=44124212&rand=563
 
 素睦还能这么嗑?  
 https://weibo.com/5609379237/PtgJsqU8C
+
